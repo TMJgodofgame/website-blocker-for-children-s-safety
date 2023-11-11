@@ -12,3 +12,9 @@ Lo ire actualizando constantemente y si podeis mandarme mensajes de paginas que 
 Ceci est un script pour windows et android pour la sécurité des petits de la maison pour le mettre dans windows il faut aller à cette adresse 'C:Windows\system32\drivers\etc'. et le remplacer.
 et pour android il faut aller à l'adresse suivante '/system/etc/' et la remplacer. et pour cela il faut télécharger dans google play l'application ESuper File Explorer. https://play.google.com/store/apps/details?id=com.esuper.file.explorer 
 Je vais le mettre à jour constamment et si vous pouvez m'envoyer des messages de pages que je n'ai pas encore bloquées.
+
+ADVERTENCIA PARA LAS PAGINAS NORPO. NO PERDEREMOS A LA FUTURA GENERACION YO SOY ADICTO Y NO QUIERO QUE PASE MAS GENTE JOVEN POR LA PORNOGRAFIA NO NOS RENDIREMOS HASTA QUE LO PROHIBAN EN TODO EL MUNDO ESTO TAMBIEN VA PARA YOUTUBE QUE TIENE SU LADO OSCURO, LO UNICO QUE NO LO PONGO EN LA LISTA PORQUE MUCHA GENTE LO USA PARA FINES EDUCATIVOS.
+
+NO NOS RENDIREMO HASTA QUE SE HAGO JUSTICIA.
+
+POR UN MUNDO SIN PORNOGRAFIA
